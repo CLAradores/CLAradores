@@ -11,7 +11,7 @@
 - Projects that blend creativity, functionality, and a touch of philosophical flair. Whether it's crafting a seamless user experience or discussing the Stoic principles behind elegant code, I'm up for collaborative adventures.
 - 
 - 🚀 Seeking Growth With a Company
-I'm not just looking for a job; I'm on the hunt for a company that values continuous growth and learning. I'm eager to contribute my skills and passion, but more importantly, I'm excited about the prospect of evolving and thriving together.
+- I'm not just looking for a job; I'm on the hunt for a company that values continuous growth and learning. I'm eager to contribute my skills and passion, but more importantly, I'm excited about the prospect of evolving and thriving together.
 - 
 - 📫 How to reach me
 - Connect with me via email at [charleslester.official@gmail.com](mailto:charleslester.official@gmail.com). Let's chat about coding, philosophy, or the perfect recipe for chocolate chip cookies.
